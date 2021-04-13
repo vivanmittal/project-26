@@ -1,0 +1,1 @@
+first fry the tamatoes and capsicum then boil the maggi noodle by pouring some water in it and then after the noodles start boiling add magii masala to it and cook for some minutes and after 4-5 minutes of adding magii masala turn the gas off and cover it. 
